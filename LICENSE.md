@@ -1,4 +1,4 @@
-#  
+#  rare be a lucky block Scripts offers the most advanced be a lucky block Script, with speed and private server access. Perfect for dominating any
 
 
 
